@@ -1,0 +1,1 @@
+A large in the [[Xi'an]] river with a few villages alongside the bank, although its proximity to the scar makes it harsh, the fertile soil surrounding the river makes it worth protectioing, the Villages along this river produce some of the strongest warriros such as Gokeg

@@ -1,0 +1,1 @@
+Military police, a special organisation only a select few Samurai elite are eligible to join. They act as a police force for the police force, only present in west [[Xi'an]].

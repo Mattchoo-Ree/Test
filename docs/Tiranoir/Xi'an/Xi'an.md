@@ -1,0 +1,8 @@
+# The She'an Shogunute 
+![[Tiranoir 2023-02-05-19-44 (1).png]]
+
+an old civilization on [[Tiranoir]]. Once a state of [[Cathair Caillte]] after the great collapse, while the lands were scared they were not nearley as scared as [[Cathair Caillte]] thanks to the mountains. It has taken a long time but the She'an have rebuilt themselves into a decent size empire, although many of the provinces tending to civil war has kept them from expanding much, seeing as they would have to sail to reach any other liveable land. besides the [[The Northern Tribes]] which put up to omuch of a fight along with the harsh arctic like environment
+
+Unlike the Deararun and many other Contintents, Humans are not the predominent Race in the She'an. Instead the Shogun is a Hobgoblin. THe most predominont races being less monstrous goblinoids. Evolving to fit a similar sociotal niche as humans, goblins Hobgolbins and bugbears are regulars in the She'an. Aswell as the fairly common Genasi, Water genasi having sizable communities near the coasts and rivers, fire genasi's having communities wherever around societies, Wind genasi being common amoungst forests aswell as near the mountains where earth genasi are common. Air and earth genasi makeing execelent warriors near the Scar.
+
+Boardering the [[The Northern Tribes]], they have peacful relations with some of the northern tribes but not all, some still tending to raid the northmost villages, but it is not rare for members of the northern tribes to join the she'an and vice versa leading to a divers selection of races amoungst the continent
